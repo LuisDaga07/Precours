@@ -1,2 +1,2 @@
 # Precours
-Este es un repositorio de prueba
+Luis Garcia Saldras adelante Eres inteligente
